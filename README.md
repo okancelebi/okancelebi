@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **C.**
 
-- 📫 How to reach me **okancelebi06@gmail.com**
+- 📫 How to reach me: **okancelebi06@gmail.com**
 
 - ⚡ Fun fact **I think I am funny.**
 
